@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Four Months! part i."
-published: true
+published: false
 ---
 
 Theo is four months old! All the things we want to say are the things we constantly hear parents—including our own parents—saying all of the time:
