@@ -5,7 +5,7 @@ published: true
 date: 2015-10-20 19:58:00
 ---
 
-[page 1](http://teamrubin.us/2015/10/20/four-months-part-i/) and [page 2](http://teamrubin.us/2015/10/20/four-months-part-ii/)
+The third page of pictures...
 
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets11to13Favorites/DSCF8410.jpg)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets11to13Favorites/DSCF8418.jpg)
@@ -35,5 +35,3 @@ date: 2015-10-20 19:58:00
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets11to13Favorites/DSCF8786.jpg)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets11to13Favorites/DSCF8788.jpg)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets11to13Favorites/DSCF8804.jpg)
-
-[page 1](http://teamrubin.us/2015/10/20/four-months-part-i/) and [page 2](http://teamrubin.us/2015/10/20/four-months-part-ii/)
