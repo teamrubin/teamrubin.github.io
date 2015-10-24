@@ -2,14 +2,16 @@
 layout: page
 title: About
 permalink: /about/
+published: true
 ---
 
-Some information about you!
+
+The three of us—Theo, Michelle, and Ed—put together this blog to share our happenings and thoughts with our family and friends near and far. 
 
 ### More Information
 
 A place to include any other types of information that you'd like to include about yourself.
 
-### Contact me
+### Email us!
 
-[email@domain.com](mailto:email@domain.com)
+[shelleyanded@gmail.com](mailto:shelleyanded@gmail.com)
