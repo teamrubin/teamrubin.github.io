@@ -31,7 +31,7 @@ While his cuteness and size are both substantial and impressive—his parents ar
 - Theo watched his first few minutes of football. He screamed as we pulled him away from the television's tractor beam.
 - Theo got a bouncy chair! (videos forthcoming)
 
-Now the pictures! Three pages this time! ([1](http://teamrubin.us/2015/10/20/four-months-part-i/) and [2](http://teamrubin.us/2015/10/20/four-months-part-ii/) and [3](http://teamrubin.us/2015/10/20/four-months-part-iii/))
+Now the pictures! Three pages this time!
 
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets11to13Favorites/DSCF7664.jpg)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets11to13Favorites/DSCF7681.jpg)
@@ -60,5 +60,3 @@ Now the pictures! Three pages this time! ([1](http://teamrubin.us/2015/10/20/fou
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets11to13Favorites/DSCF8037.jpg)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets11to13Favorites/DSCF8056.jpg)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets11to13Favorites/DSCF8074.jpg)
-
-[page 2](http://teamrubin.us/2015/10/20/four-months-part-ii/) and [page 3](http://teamrubin.us/2015/10/20/four-months-part-iii/)
