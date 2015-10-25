@@ -13,11 +13,11 @@ Over the birthday weekend, Theo
 
 - rolled around the cabin
 - sat/slept on the deck
-- worries about the buzzards that circled the cabin (something dead in his diaper?)
+- worried about the buzzards that circled the cabin (something dead in his diaper?)
 - loved looking out the loft's windows to see the forest
 - slept like a boss (he really likes hot places, and the wood-burning stove ensured the loft was hot)
 
-After the trip, Shelley's mom (Norma a.k.a. *Sitto*) came in town, and helped us. Norma and Theo spent a lot of time hanging out. In addition to hanging out with his Sitto, Theo
+After the trip, Shelley's mom (Norma a.k.a. *Sitto*) came to town to see her favorite grandson (and help mom and dad weather the no-nanny week). Norma and Theo spent a lot of time hanging out. In addition to hanging out with his Sitto, Theo
 
 - attacked a bag of Twix
 - figured out his jumper chair (so much so that he developed a blister on his baby toe)
