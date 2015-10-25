@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "A Birthday Party"
-published: false
+published: true
 date: 2015-10-25 14:30:00
 ---
 
