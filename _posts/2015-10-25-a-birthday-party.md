@@ -25,6 +25,8 @@ After the trip, Shelley's mom (Norma a.k.a. *Sitto*) came to town to see her fav
 - continued eating his hands and started playing with his tongue
 - saw some giant fish kites at the marina
 
+**NOTE:** We moved our blog away from WordPress, so if you know people who were following the blog via WordPress, please let them know... thanks!
+
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets14Favorites/DSCF8818.jpg)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets14Favorites/DSCF8828.jpg)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets14Favorites/DSCF8837.jpg)
