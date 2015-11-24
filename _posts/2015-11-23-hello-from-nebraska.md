@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Hello from Nebraska"
+title: "Hello from Nebraska!"
 published: true
 date: 2015-11-23 20:00:00
 ---
@@ -10,8 +10,10 @@ Amongst Theo's most recent updates, the topmost must be the fact that he finally
 More Theo exploits:
 
 - Theo added gelato (technically sorbet) and celery to his gastronomic repertoire. He still prefers milk and ice cubes (separately).
-- Theo took his first and second plane trips. He also rocked those plane trips. He cried a little bit, but overall, his performance impressed us and many other fellow passengers.
+- Theo took his first and second plane trips. He also rocked those plane trips. He cried a little bit, but overall, his performance impressed us and many other fellow passengers. The main shortcoming occurred when Theo peed through his diaper and onto Ed's blue jeans.
 - Theo and his playmate continue to grow in their friendship. Our nanny recently relayed stories about the boys forgoing food and naps to continue playing. They also take turns sucking on each other's hands.
+- Theo took a day trip to Davis, California to visit his friends Bri, Justin, and Ellie. We walked around the UC Davis arboretum, ate burgers, and bought Theo a stuffed T-Rex! We had a terrific time—even withstanding Shell's questionable decision to change Theo's diaper in damp soil.
+- Theo has resumed peeing on Ed.
 
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets16Favorites/DSCF9687.jpg)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets16Favorites/DSCF9696.jpg)
