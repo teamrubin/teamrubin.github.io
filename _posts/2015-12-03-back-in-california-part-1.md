@@ -11,7 +11,7 @@ In case you missed [it](http://www.teamrubin.us/hello-from-nebraska/), we all tr
 
 Updates from the little guy:
 
-- Theo met a lot more of Ed's family.
+- Theo met a lot more of Ed's family—including **three** great grandparents!
 - Theo partook in Grandma Liz's bountiful Thanksgiving meal:
     - turkey (he liked immediately)
     - celery (he warmed up to)
