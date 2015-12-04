@@ -50,3 +50,5 @@ And Theo met snow.
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets17Favorites/DSCF10009.JPG)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets17Favorites/DSCF10012.JPG)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets17Favorites/DSCF10017.JPG)
+
+[more pictures](http://www.teamrubin.us/back-in-california-part-2/)!
