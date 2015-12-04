@@ -1,16 +1,17 @@
 ---
 layout: post
 title: Back in California, Part 1
-published: true
+published: false
 date: 2015-12-03 17:00:00
 ---
 
 And we're back (in California... for a few weeks).
 
-In case you missed [it](http://www.teamrubin.us/hello-from-nebraska/), we all traveled to Nebraska for Thanksgiving. Nebraska decided to start winter while we were visiting, so Thanksgiving was somewhat canceled: rather than heading out to the farm to see most of Ed's mom's side of the family, we hunkered down at Ed's folks' house for a nice meal, several naps, and more football games than Shelley lets Ed and Theo watch in a year. Everyone was happy. (Though we wish we could have seen everyone.)
+In case you missed [it](http://www.teamrubin.us/hello-from-nebraska/), we all traveled to Nebraska for Thanksgiving. Nebraska decided to start winter while we were visiting, so Thanksgiving was somewhat canceled: rather than heading out to the farm to see most of Ed's mom's side of the family, we hunkered down at Ed's folks' house for a nice meal, several naps, and more football games than Shelley lets Ed and Theo watch in a year. Everyone was happy. (Though we wish we could have seen many of the people we missed.)
 
 Updates from the little guy:
 
+- Theo met a lot more of Ed's family.
 - Theo partook in Grandma Liz's bountiful Thanksgiving meal:
     - turkey (he liked immediately)
     - celery (he warmed up to)
@@ -24,6 +25,8 @@ Updates from the little guy:
     - ceiling fans
 - And one thing he still hates:
     - baths (though he took one with his dad and seemed much happier, once Ed taught him how to splash)
+
+And Theo met snow.
 
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets17Favorites/IMG_0115.JPG)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets17Favorites/DSCF9898.JPG)
