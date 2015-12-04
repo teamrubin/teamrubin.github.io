@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Back in California, Part 1
-published: false
+published: true
 date: 2015-12-03 17:00:00
 ---
 
