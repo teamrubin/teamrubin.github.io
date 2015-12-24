@@ -5,7 +5,7 @@ published: true
 date: 2015-12-23 20:00:00
 ---
 
-Howdy folks! Berkeley started to get a bit too cold for us, so we followed the snowbirds' route down to Phoenix and into Shell's parents (*the Norms*) warm basement. Ed caught a cold as we rolled into Phoenix, Theo followed with his first-ever sickness, and it looks like Shell is bringing up the caboose. Besides catching his first-ever cold, here are a few more Theo updates:
+Howdy folks! Berkeley started to get a bit too cold for us, so we followed the snowbirds' route down to Phoenix and into Shell's parents' (*the Norms*') warm basement. Ed caught a cold as we rolled into Phoenix, Theo followed with his first-ever sickness, and it looks like Shell is bringing up the caboose. Besides catching his first-ever cold, here are a few more Theo updates:
 
 - Lots of new foods!
   - Theo **loves** peanut butter, bananas, yogurt, chicken, turkey, avocado, and... chocolate (we know... Grandpa Norm pushed very hard for the chocolate). Boob juice still tops his list.
@@ -18,6 +18,8 @@ Howdy folks! Berkeley started to get a bit too cold for us, so we followed the s
   - Stacking cups and books from his Grandma Liz and Grandpa Dan.
   - Very cute hat and outfits from his Aunt Jen and Uncle Mike.
 - Theo doesn't hate baths anymore!
+
+Merry Christmas from our family to you.
 
 Now for the pictures! (There are three pages.)
 
