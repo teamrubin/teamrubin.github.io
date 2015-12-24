@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Hello from Sunny Arizona! (2/3)
-published: false
+published: true
 date: 2015-12-23 19:59:00
 ---
 
