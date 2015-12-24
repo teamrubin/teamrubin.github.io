@@ -8,11 +8,12 @@ date: 2015-12-23 20:00:00
 Howdy folks! Berkeley started to get a bit too cold for us, so we followed the snowbirds' route down to Phoenix and into Shell's parents' (*the Norms*') warm basement. Ed caught a cold as we rolled into Phoenix, Theo followed, and it looks like Shell is bringing up the caboose. Besides catching his first-ever cold, here are a few more Theo updates:
 
 - Lots of new foods!
-  - Theo **loves** peanut butter, bananas, yogurt, chicken, turkey, avocado, and... chocolate (we know... Grandpa Norm pushed very hard for the chocolate). Boob juice still tops his list.
+  - Theo **loves** peanut butter, bananas, yogurt, chicken, turkey, avocado, raspberries, and... chocolate (we know... Grandpa Norm pushed very hard for the chocolate). Boob juice still tops his list.
   - Theo will eat just about anything else: spinach, carrots, celery, eggs, paper, *etc.*
   - Theo hates grape- and cherry-flavored Tylenol.
 - Theo experienced the desert. We went for a brief jaunt in Joshua Tree National Park—we drove through the park *en route* to Phoenix—but his first real desert walk happened here in Shell's beloved Sonoran Desert.
 - Solid poop! It's really stinky.
+- Theo is sitting really well.
 - Norm taught Theo how to play the drums, and Shell taught him a little piano.
 - Theo opened his first Christmas presents
   - Stacking cups and books from his Grandma Liz and Grandpa Dan.
