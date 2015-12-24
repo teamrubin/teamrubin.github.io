@@ -5,7 +5,7 @@ published: true
 date: 2015-12-23 20:00:00
 ---
 
-Howdy folks! Berkeley started to get a bit too cold for us, so we followed the snowbirds' route down to Phoenix and into Shell's parents' (*the Norms*') warm basement. Ed caught a cold as we rolled into Phoenix, Theo followed with his first-ever sickness, and it looks like Shell is bringing up the caboose. Besides catching his first-ever cold, here are a few more Theo updates:
+Howdy folks! Berkeley started to get a bit too cold for us, so we followed the snowbirds' route down to Phoenix and into Shell's parents' (*the Norms*') warm basement. Ed caught a cold as we rolled into Phoenix, Theo followed, and it looks like Shell is bringing up the caboose. Besides catching his first-ever cold, here are a few more Theo updates:
 
 - Lots of new foods!
   - Theo **loves** peanut butter, bananas, yogurt, chicken, turkey, avocado, and... chocolate (we know... Grandpa Norm pushed very hard for the chocolate). Boob juice still tops his list.
