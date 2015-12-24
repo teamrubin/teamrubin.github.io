@@ -10,13 +10,14 @@ Howdy folks! Berkeley started to get a bit too cold for us, so we followed the s
 - Lots of new foods!
   - Theo **loves** peanut butter, bananas, yogurt, chicken, turkey, avocado, and... chocolate (we know... Grandpa Norm pushed very hard for the chocolate). Boob juice still tops his list.
   - Theo will eat just about anything else: spinach, carrots, celery, eggs, paper, *etc.*
-  - Theo hates grape- and cherry-flavored Tylenol
+  - Theo hates grape- and cherry-flavored Tylenol.
 - Theo experienced the desert. We went for a brief jaunt in Joshua Tree National Park—we drove through the park *en route* to Phoenix—but his first real desert walk happened here in Shell's beloved Sonoran Desert.
 - Solid poop! It's really stinky.
 - Norm taught Theo how to play the drums, and Shell taught him a little piano.
 - Theo opened his first Christmas presents
   - Stacking cups and books from his Grandma Liz and Grandpa Dan.
   - Very cute hat and outfits from his Aunt Jen and Uncle Mike.
+  - A bunch of great clothes and toys from the Hubele family Christmas party.
 - Theo doesn't hate baths anymore!
 
 Merry Christmas from our family to you.
