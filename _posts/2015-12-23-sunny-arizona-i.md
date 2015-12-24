@@ -45,4 +45,4 @@ Now for the pictures! (There are three pages.)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets18and19Favorites/DSCF10388.jpg)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets18and19Favorites/DSCF10397.jpg)
 
-pages [2] and [3]
+pages [2](http://www.teamrubin.us/sunny-arizona-ii/) and [3](http://www.teamrubin.us/sunny-arizona-iii/)
