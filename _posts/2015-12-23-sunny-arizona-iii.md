@@ -28,4 +28,4 @@ date: 2015-12-23 19:58:00
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets18and19Favorites/DSCF10870.jpg)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets18and19Favorites/DSCF10893.jpg)
 
-pages [1] and [2]
+pages [1](http://www.teamrubin.us/sunny-arizona-i/) and [2](http://www.teamrubin.us/sunny-arizona-ii/)
