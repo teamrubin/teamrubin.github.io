@@ -19,9 +19,9 @@ More updates!
     + Pumpkin bread, pumpkin pie, and candied yams ([again](http://www.teamrubin.us/sunny-arizona-i/), all Grandpa Norm)
 - Theo celebrated his first Christmas! We attended the vigil Mass (translation: we went to church on the 24th), where Theo managed to capture the attention of the entire family behind us.
     + Theo (and we) made out like a fat rat: terrific toys and cute clothes galore! Toys included a Koosh ball, a football, a crazy wooden bungee contraption, a butterfly that sings, a trilingual mini piano, a roadkill skunk, and a zombie whose arms fall off when shot with a pistol (the latter two, of course, came from Grandpa Norm).
-    + The little guy met more of the folks on Norms' side of the family; he particularly liked Shell's cousin Linda, who has long hair (for grabbing) and long nails (for back-scratching).
+    + The little guy met more of the folks on Norms' side of the family; he particularly liked Shell's cousin Linda, who has long hair (for grabbing) and long nails (for back-scratching). He also got to hang out with Norm's parents, Great Grandma Alida and Great Papa Hal.
     + We visited several pretty impressive Christmas light displays (see the animatronic Santa below).
-- We are still working our way through the family's first cold. We're through the worst of it, but there is still a lot of congestion...
+- We are still working our way through the family's first cold. We're through the worst of it, but there is still a lot of congestion. Theo's breathing often makes for a pretty solid Darth Vader impression.
 - Which brings us to new things that Theo hates:
     + the snot sucker
     + having his face wiped
