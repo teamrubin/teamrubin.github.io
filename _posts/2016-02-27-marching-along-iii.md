@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Marching Along iii.
-published: false
+published: true
 date: 2016-02-27 22:28:00
 ---
 
