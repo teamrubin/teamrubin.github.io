@@ -64,3 +64,5 @@ It turns out not posting for two months means we have a lot (three pages) of pic
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets21Favorites/DSCF11639.JPG)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets21Favorites/DSCF11655.JPG)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets21Favorites/DSCF11661.JPG)
+
+[next page of pictures](http://www.teamrubin.us/marching-along-ii/)
