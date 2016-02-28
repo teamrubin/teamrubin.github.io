@@ -38,4 +38,5 @@ The second page of pictures.
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets22Favorites/DSCF12199.JPG)
 
 [next page of pictures](http://www.teamrubin.us/marching-along-iii/)
+
 [previous page of pictures](http://www.teamrubin.us/marching-along-i/)
