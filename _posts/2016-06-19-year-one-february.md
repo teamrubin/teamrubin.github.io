@@ -5,7 +5,7 @@ published: true
 date: 2016-06-19 11:00:00
 ---
 
-#### February
+Theo in February...
 
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets23Favorites/DSCF12811.JPG)
 ![](https://dl.dropboxusercontent.com/u/72656879/Theo/Sets23Favorites/DSCF12838.JPG)
