@@ -5,6 +5,8 @@ published: true
 date: 2017-05-06 16:03:00
 ---
 
+Berkeley, March–April.
+
 ## Back in Berkeley, part ii.
 
 ![](https://s26.postimg.org/5blp0wgkp/DSCF7874.jpg)
@@ -22,6 +24,6 @@ date: 2017-05-06 16:03:00
 ![](https://s26.postimg.org/nh38sp5gp/DSCF8149.jpg)
 ![](https://s26.postimg.org/o7vyyh7u1/DSCF8152.jpg)
 
-Previous: [Back in Berkeley, part i.](2017-05-06-some-changes-ii.html)
+Previous: [Back in Berkeley, part i.](http://www.teamrubin.us/some-changes-ii)
 
-Next: [Shelley and Clara (and family) at the hospital](2017-05-06-some-changes-iv.html)
+Next: [Shelley and Clara (and family) at the hospital](http://www.teamrubin.us/some-changes-iv)
