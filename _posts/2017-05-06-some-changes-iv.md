@@ -28,6 +28,6 @@ date: 2017-05-06 16:02:00
 ![](https://s26.postimg.org/b2pnjusq1/DSCF8412.jpg)
 ![](https://s26.postimg.org/bgqzjgctl/DSCF8425.jpg)
 
-Previous: [Back in Berkeley, part ii.](2017-05-06-some-changes-iii.html)
+Previous: [Back in Berkeley, part ii.](http://www.teamrubin.us/some-changes-iii)
 
-Next: [Clara comes home!](2017-05-06-some-changes-iv.html)
+Next: [Clara comes home!](http://www.teamrubin.us/some-changes-v)
