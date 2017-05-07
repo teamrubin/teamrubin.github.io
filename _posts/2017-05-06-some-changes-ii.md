@@ -25,6 +25,6 @@ Pictures from Berkeley, January–March.
 ![](https://s26.postimg.org/rkv0tpmnd/DSCF7837.jpg)
 ![](https://s26.postimg.org/4kodhdotl/DSCF7843.jpg)
 
-Previous: [Christmas in Nebraska](/some-changes-i)
+Previous: [Christmas in Nebraska](http://www.teamrubin.us/some-changes-i)
 
-Next: [Back in Berkeley, part ii.](/some-changes-iii)
+Next: [Back in Berkeley, part ii.](http://www.teamrubin.us/some-changes-iii)
