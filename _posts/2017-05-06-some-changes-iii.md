@@ -2,7 +2,7 @@
 layout: post
 title: Some changes, pt. iii
 published: true
-date: 2017-05-06 16:04:00
+date: 2017-05-06 16:03:00
 ---
 
 ## Back in Berkeley, part ii.
@@ -22,8 +22,6 @@ date: 2017-05-06 16:04:00
 ![](https://s26.postimg.org/nh38sp5gp/DSCF8149.jpg)
 ![](https://s26.postimg.org/o7vyyh7u1/DSCF8152.jpg)
 
-## More pictures
+Previous: [Back in Berkeley, part i.](2017-05-06-some-changes-ii.html)
 
-Previous: [Back in Berkeley, part ii.](2017-05-06-some-changes-ii.md)
-
-Next: [Shelley and Clara (and family) at the hospital](2017-05-06-some-changes-iv.md)
+Next: [Shelley and Clara (and family) at the hospital](2017-05-06-some-changes-iv.html)
