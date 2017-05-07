@@ -22,11 +22,11 @@ A few more quick updates:
 
 ## Now for the pictures!
 
-- [Christmas in Nebraska](http://www.teamrubin.us/some-changes-i.html) (I know; very late)
-- [Back in Berkeley, part i.](http://www.teamrubin.us/some-changes-ii.html)
-- [Back in Berkeley, part ii.](http://www.teamrubin.us/some-changes-iii.html)
-- [Shelley and Clara (and family) at the hospital](http://www.teamrubin.us/some-changes-iv.html)
-- [Clara comes home!](http://www.teamrubin.us/some-changes-v.html)
+- [Christmas in Nebraska](http://www.teamrubin.us/some-changes-i) (I know; very late)
+- [Back in Berkeley, part i.](http://www.teamrubin.us/some-changes-ii)
+- [Back in Berkeley, part ii.](http://www.teamrubin.us/some-changes-iii)
+- [Shelley and Clara (and family) at the hospital](http://www.teamrubin.us/some-changes-iv)
+- [Clara comes home!](http://www.teamrubin.us/some-changes-v)
 
 ## Christmas in Nebraska
 
@@ -45,4 +45,4 @@ A few more quick updates:
 ![](https://s26.postimg.org/ff0rm71m1/DSCF7541.jpg)
 ![](https://s26.postimg.org/xvv6d0hk9/DSCF7583.jpg)
 
-Next: [Back in Berkeley, part i.](http://www.teamrubin.us/some-changes-ii.html)
+Next: [Back in Berkeley, part i.](http://www.teamrubin.us/some-changes-ii)
