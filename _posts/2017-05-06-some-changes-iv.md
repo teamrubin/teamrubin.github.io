@@ -5,6 +5,8 @@ published: true
 date: 2017-05-06 16:02:00
 ---
 
+Photos from Shelley and Clara's big day at the hospital.
+
 ## Shelley and Clara (and family) at the hospital
 
 ![](https://s26.postimg.org/a2q5wnysp/DSCF8154.jpg)
