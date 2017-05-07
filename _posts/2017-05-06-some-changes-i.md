@@ -22,11 +22,11 @@ A few more quick updates:
 
 ## Now for the pictures!
 
-- Christmas in Nebraska (I know; very late)
-- Back in Berkeley, part i.
-- Back in Berkeley, part ii.
-- Shelley and Clara (and family) at the hospital
-- Clara comes home!
+- [Christmas in Nebraska](2017-05-06-some-changes-i.html) (I know; very late)
+- [Back in Berkeley, part i.](2017-05-06-some-changes-ii.html)
+- [Back in Berkeley, part ii.](2017-05-06-some-changes-iii.html)
+- [Shelley and Clara (and family) at the hospital](2017-05-06-some-changes-iv.html)
+- [Clara comes home!](2017-05-06-some-changes-v.html)
 
 ## Christmas in Nebraska
 
@@ -44,3 +44,5 @@ A few more quick updates:
 ![](https://s26.postimg.org/olj29h6uh/DSCF7537.jpg)
 ![](https://s26.postimg.org/ff0rm71m1/DSCF7541.jpg)
 ![](https://s26.postimg.org/xvv6d0hk9/DSCF7583.jpg)
+
+Next: [Back in Berkeley, part i.](2017-05-06-some-changes-ii.html)
