@@ -5,6 +5,8 @@ published: true
 date: 2017-05-06 16:04:00
 ---
 
+Pictures from Berkeley, January–March.
+
 ## Back in Berkeley, part i.
 
 ![](https://s26.postimg.org/k0eyuyajt/DSCF7624.jpg)
@@ -23,6 +25,6 @@ date: 2017-05-06 16:04:00
 ![](https://s26.postimg.org/rkv0tpmnd/DSCF7837.jpg)
 ![](https://s26.postimg.org/4kodhdotl/DSCF7843.jpg)
 
-Previous: [Christmas in Nebraska](2017-05-06-some-changes-i.md)
+Previous: [Christmas in Nebraska](some-changes-i)
 
-Next: [Back in Berkeley, part ii.](2017-05-06-some-changes-iii.md)
+Next: [Back in Berkeley, part ii.](some-changes-iii)
