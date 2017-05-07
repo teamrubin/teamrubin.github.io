@@ -23,8 +23,6 @@ date: 2017-05-06 16:04:00
 ![](https://s26.postimg.org/rkv0tpmnd/DSCF7837.jpg)
 ![](https://s26.postimg.org/4kodhdotl/DSCF7843.jpg)
 
-## More pictures
-
 Previous: [Christmas in Nebraska](2017-05-06-some-changes-i.md)
 
 Next: [Back in Berkeley, part ii.](2017-05-06-some-changes-iii.md)
