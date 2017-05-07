@@ -5,6 +5,8 @@ published: true
 date: 2017-05-06 16:01:00
 ---
 
+Photos from Clara at home!
+
 ## Clara comes home!
 
 ![](https://s26.postimg.org/om6hpk6p5/DSCF8431.jpg)
@@ -18,4 +20,4 @@ date: 2017-05-06 16:01:00
 ![](https://s26.postimg.org/kamheap61/DSCF8546.jpg)
 ![](https://s26.postimg.org/l1f7k2rjd/DSCF8564.jpg)
 
-Previous: [Shelley and Clara (and family) at the hospital](2017-05-06-some-changes-iv.html)
+Previous: [Shelley and Clara (and family) at the hospital](http://www.teamrubin.us/some-changes-iv)
