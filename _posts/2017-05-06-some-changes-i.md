@@ -11,8 +11,9 @@ For example, Shelley gave birth to an amazing little girl on April 6th! That bab
 
 Theo is coming up on two years of age, and, from time-to-time, his behavior might give you a hint at this proximity to two. He's still the book-loving, music-loving, food-hating, joyful little guy we love, but he's added a few new tricks to his bag. For instance,
 
-- __One less favorable trick__: if you make him mad enough, then he will throw a toy at you, while he glares deeply into your soul. And he throws surprisingly accurately/hard—particularly when the toy is a die-cast dump truck. His throwing skills are quickly approaching Shelley's level.
+- __One less favorable trick__: if you make him mad enough, then he will throw a toy at you while he glares deeply into your soul. And he throws surprisingly accurately/hard—particularly when the toy is a die-cast dump truck. His throwing skills are quickly approaching Shelley's level.
 - __A more positive trick__: Theo figured out how to play the harmonica (and blow bubbles—they're very similar)! Shelley very accurately predicted that Theo would love music. He's still working on saying, "harmonica"—four-syllable words still present some challenges.
+- __A very useful trick__: Theo talks!
 
 A few more quick updates:
 
